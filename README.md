@@ -1,5 +1,4 @@
-## Why sir Yohan is the best? 
-So many things to list down hehehe kaya top 3 qualities na lang!!  
-- Pogi
-- Matalino
-- **Bait super**
+## My Favorite Series: Malcolm in the Middlw
+I love this series because of its comedic episodes.  
+- Main Character: **Malcolm**  
+- Genre: Black comedy
